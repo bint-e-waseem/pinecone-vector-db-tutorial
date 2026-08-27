@@ -239,7 +239,7 @@ If this tutorial helped you:
 
 ---
 
-**Made with ❤️ by [Your Name]**
+**Made with ❤️ by yashfa waseem**
 
 ---
 
